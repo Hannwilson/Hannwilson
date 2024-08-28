@@ -2,7 +2,7 @@
 ## Hannah Wilson
 ### 😄 Pronouns: She/her
 ### **Graphic Information Systems MS Student**
-*22 years old* excited to code again!
+*22 years old* and excited to code again!
 
 During my time at ASU I want to amplify my skills in design, really elevate them to the next level.
 
